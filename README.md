@@ -1,3 +1,5 @@
+![obraz](https://user-images.githubusercontent.com/66353429/146277613-59dc8dd9-7cd1-431b-ba7f-88f9f148100a.png)
+
 ## Moja edukacja
 
 - Gimnazjum ZCBM w Bielsku-Białej
